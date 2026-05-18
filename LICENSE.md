@@ -1,4 +1,4 @@
-#  
+#  Advanced 99 nights in the forest scripts is the best 99 nights in the forest scripts with infinite resources and unlimited stamina. Safe, reliable, and optimized for maximum
 
 
 
